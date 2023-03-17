@@ -9,3 +9,7 @@ foi dessa vez?
 AGORA EU APRENDI
 fixando
 vou textarrr
+aprendendo os tipos de git
+vai dar dessa vez
+foi
+cuzaum
